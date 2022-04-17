@@ -1,5 +1,14 @@
 - 👋 I WARNED YOU --- LEAVE THE HEAVY LIFTING TO THOSE WHO KNOW WHAT THEY ARE PLAYING WITH.
 - *** not covered....
+
+![ADVISERS INVESTMENT TRUST --- 2021-08-23](https://user-images.githubusercontent.com/70865813/163725674-939d41f2-7b50-4f70-bdfb-43fdf0a18377.JPG)
+
+![Feb 16 -- Read Received Vouchers](https://user-images.githubusercontent.com/70865813/163725677-0e53ea9e-9269-4acf-8f28-63f861c588d5.JPG)
+
+![State Farm Associates Funds Trusts - 93715](https://user-images.githubusercontent.com/70865813/163725679-e36d4624-9aae-4757-bc7b-c795982935df.JPG)
+
+![postCard](https://user-images.githubusercontent.com/70865813/163725678-e2fed992-735d-4cca-8622-805509a4b99f.JPG)
+
 *** [DOCKET 315](https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=gcMSDaFzm0ynPeXZKSHgLQ==)
 [BOTARIZED on the 30TH of MARCH, 2022. STATE FARM TRUST FUND ---sec-sfitx-state-farm-interim-fund-4017g-2020-june-08.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/BSCPGROUPHOLDINGSLLC/files/8378311/BOTARIZED.on.the.30TH.of.MARCH.2022.STATE.FARM.TRUST.FUND.---sec-sfitx-state-farm-interim-fund-4017g-2020-june-08.pdf)
 
