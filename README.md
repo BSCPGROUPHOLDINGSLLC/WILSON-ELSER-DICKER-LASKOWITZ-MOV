@@ -1,6 +1,9 @@
 - 👋 I WARNED YOU --- LEAVE THE HEAVY LIFTING TO THOSE WHO KNOW WHAT THEY ARE PLAYING WITH.
 - *** not covered....26 CFR § 1.6662-5 
 
+![image2](https://user-images.githubusercontent.com/70865813/163725744-f10377ab-97a0-403c-9f46-58c1424bfc52.jpeg)
+
+
 ![ADVISERS INVESTMENT TRUST --- 2021-08-23](https://user-images.githubusercontent.com/70865813/163725674-939d41f2-7b50-4f70-bdfb-43fdf0a18377.JPG)
 
 ![Feb 16 -- Read Received Vouchers](https://user-images.githubusercontent.com/70865813/163725677-0e53ea9e-9269-4acf-8f28-63f861c588d5.JPG)
