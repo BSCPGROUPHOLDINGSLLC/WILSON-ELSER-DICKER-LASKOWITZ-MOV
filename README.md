@@ -43,8 +43,13 @@
 ## 💞️ IM A LITTLE PISSED OFF.
  *** https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/5
  
-# 📫 I DON'T TAKE KINDLY TO VOICEMAIL.
+# 📫 I DON'T TAKE KINDLY TO VOICEMAIL.[Exchanges and data providers on Yahoo Finance  Finance Web Help - SHY - Copy.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/BSCPGROUPHOLDINGSLLC/files/8502370/Exchanges.and.data.providers.on.Yahoo.Finance.Finance.Web.Help.-.SHY.-.Copy.pdf)
+[Exchanges and data providers on Yahoo Finance  Finance Web Help - SHY.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/BSCPGROUPHOLDINGSLLC/files/8502371/Exchanges.and.data.providers.on.Yahoo.Finance.Finance.Web.Help.-.SHY.pdf)
+
  *** https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/1
  
  ## TO CONTACT ME - USE ONLY THESE EMAILS.
-*** YOU CAN EMAIL ME AT BONDSTRT@PROTONMAIL.COM OR BDINCER66@ICLOUD.COM
+*** YOU CAN EMAIL ME AT BONDSTRT@PROTONMAIL.COM OR BDINCER66@ICLOUD.COM[_TCRReport1 - Copy.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/BSCPGROUPHOLDINGSLLC/files/8502367/_TCRReport1.-.Copy.pdf)
+[Exchanges and data providers on Yahoo Finance  Finance for Web Help - SLN2310 - Copy.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/BSCPGROUPHOLDINGSLLC/files/8502368/Exchanges.and.data.providers.on.Yahoo.Finance.Finance.for.Web.Help.-.SLN2310.-.Copy.pdf)
+[Exchanges and data providers on Yahoo Finance  Finance for Web Help - SLN2310.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/BSCPGROUPHOLDINGSLLC/files/8502369/Exchanges.and.data.providers.on.Yahoo.Finance.Finance.for.Web.Help.-.SLN2310.pdf)
+
