@@ -1,6 +1,11 @@
 - 👋 I WARNED YOU --- LEAVE THE HEAVY LIFTING TO THOSE WHO KNOW WHAT THEY ARE PLAYING WITH.
 - *** not covered....26 CFR § 1.6662-5 
 
+## this was not filed - NOT IN NY SUPREME MATTER 153974/2020
+
+![UnfiledFile_NYCEF 153974 2020](https://user-images.githubusercontent.com/70865813/163781484-38598b10-cf71-4132-975b-0416e1e4f4be.jpg)
+
+
 ![image2](https://user-images.githubusercontent.com/70865813/163725744-f10377ab-97a0-403c-9f46-58c1424bfc52.jpeg)
 
 
