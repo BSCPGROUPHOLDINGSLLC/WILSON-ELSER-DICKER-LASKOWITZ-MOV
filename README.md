@@ -1,11 +1,7 @@
-- 👋 I WARNED YOU --- LEAVE THE HEAVY LIFTING TO THOSE WHO KNOW WHAT THEY ARE PLAYING WITH.
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=c3iexOlBwsgc1lnMJ2_PLUS_AqQ==
 
-
-- *** not covered....26 CFR § 1.6662-5
-
-## this was not filed - NOT IN NY SUPREME MATTER 153974/2020
-
-LIKE I SAID.. I WARNED THEM EARLIER...
+### not covered....26 CFR § 1.6662-5
+\
 Wed, Jun 3, 2020, 2:20 PM        RECEIVED NYSCEF: 08/09/2020   
 
         "... Why don't you just tack on the 9 billion dollars NYC is in the hole while you're at it? ..."
