@@ -22,37 +22,39 @@ I.    THEY MONITORED MY LAPTOP FROM OUTSIDE OF MY APARTMENT.
     - ON A 24 HOUR BASIS, RECORDED MY EVERY STEP AND MOTION.           
       https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=c3iexOlBwsgc1lnMJ2_PLUS_AqQ==
     
-      ASHLEY HUMPHRIES, OF WILSON & DICKER.
+ASHLEY HUMPHRIES, OF WILSON & DICKER & LASKOWITZ
+*** 150 EAST 42ND STREET
+WWW.WILSONELSER.COM
                
-      " ... PLEASE CHECK THE SECURITY TAPES ... "
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=HbnFLHB3tyjhEWAYb6mOPw==
+ " ... PLEASE CHECK THE SECURITY TAPES ... "
+ https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=HbnFLHB3tyjhEWAYb6mOPw==
  
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YvkihzM1cwANtAvbUwWX_PLUS_g==
+ https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YvkihzM1cwANtAvbUwWX_PLUS_g==
 
 
-    II.    VIDEOTAPED ME "INSIDE OF MY APARTMENT".
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=UZsCx4RNLy/6V9gf1BkpTQ==
+II.    VIDEOTAPED ME "INSIDE OF MY APARTMENT".
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=UZsCx4RNLy/6V9gf1BkpTQ==
 
 
-    III. DISTRIBUTED VIDEOS OF MYSELF IN MY APARTMENT -- THE INTERIOR.
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YGRsoOyDJuc93MrOnwh5Jw==
-
-               
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=84wdx4RhX5LEi0sISXetBw==
-
-
-    IV. ATTACHED VIDEO OF MYSELF DRILLING INSIDE OF MY APARTMENT.
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=5uMb/ORklCen4NaSEt6oFg==
+III. DISTRIBUTED VIDEOS OF MYSELF IN MY APARTMENT -- THE INTERIOR.
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YGRsoOyDJuc93MrOnwh5Jw==
 
                
-    V.    ATTACHED VIDEO OF MYSELF HAMMERING INSIDE OF MY APARTMENT.
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=C4X_PLUS_6_PLUS_kgBxoElZyFgKxGEQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=84wdx4RhX5LEi0sISXetBw==
 
-    VI.    THEY ALSO ANNEX RECEIPTS TO HELP BUY THEMSELVES MORE TIME AND TO DISTRACT
+
+IV. ATTACHED VIDEO OF MYSELF DRILLING INSIDE OF MY APARTMENT.
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=5uMb/ORklCen4NaSEt6oFg==
+
+               
+V.    ATTACHED VIDEO OF MYSELF HAMMERING INSIDE OF MY APARTMENT.
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=C4X_PLUS_6_PLUS_kgBxoElZyFgKxGEQ==
+
+VI.    THEY ALSO ANNEX RECEIPTS TO HELP BUY THEMSELVES MORE TIME AND TO DISTRACT
         THE JUDGE/ CLERK AND INSTEAD OF DEALING WITH THEIR TAX-EVASIONS AND ILLEGAL CONDUCT...
 
 --- CANVAS NEW NEIGHBORHOODS WITHOUT REPRESENTING THE RECEIPTS FOR TAXES PAID IN THE PRIOR 15-YEARS...
-      https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=Uavl5NRQV4YHKqWUf8fyVQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=Uavl5NRQV4YHKqWUf8fyVQ==
                
     VII. ALSO WILL SWEAR IN THEIR AFFIDAVITS THAT GO ON FOR PAGES THAT THEY HAVE NO INVOLVEMENT.
         - HAVE ALSO MONITORED ME FROM THE CORRIDOR, AND THROUGH MY DOOR.
