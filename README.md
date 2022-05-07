@@ -27,16 +27,19 @@ ASHLEY HUMPHRIES, OF WILSON & DICKER & LASKOWITZ
 WWW.WILSONELSER.COM
                
  " ... PLEASE CHECK THE SECURITY TAPES ... "
+ 
  https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=HbnFLHB3tyjhEWAYb6mOPw==
  
  https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YvkihzM1cwANtAvbUwWX_PLUS_g==
 
 
 II.    VIDEOTAPED ME "INSIDE OF MY APARTMENT".
+
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=UZsCx4RNLy/6V9gf1BkpTQ==
 
 
 III. DISTRIBUTED VIDEOS OF MYSELF IN MY APARTMENT -- THE INTERIOR.
+
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=YGRsoOyDJuc93MrOnwh5Jw==
 
                
@@ -44,35 +47,39 @@ https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=84wdx4RhX5LEi0sISX
 
 
 IV. ATTACHED VIDEO OF MYSELF DRILLING INSIDE OF MY APARTMENT.
+
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=5uMb/ORklCen4NaSEt6oFg==
 
                
 V.    ATTACHED VIDEO OF MYSELF HAMMERING INSIDE OF MY APARTMENT.
+
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=C4X_PLUS_6_PLUS_kgBxoElZyFgKxGEQ==
 
 VI.    THEY ALSO ANNEX RECEIPTS TO HELP BUY THEMSELVES MORE TIME AND TO DISTRACT
         THE JUDGE/ CLERK AND INSTEAD OF DEALING WITH THEIR TAX-EVASIONS AND ILLEGAL CONDUCT...
 
 --- CANVAS NEW NEIGHBORHOODS WITHOUT REPRESENTING THE RECEIPTS FOR TAXES PAID IN THE PRIOR 15-YEARS...
+
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=Uavl5NRQV4YHKqWUf8fyVQ==
                
-    VII. ALSO WILL SWEAR IN THEIR AFFIDAVITS THAT GO ON FOR PAGES THAT THEY HAVE NO INVOLVEMENT.
+  VII. ALSO WILL SWEAR IN THEIR AFFIDAVITS THAT GO ON FOR PAGES THAT THEY HAVE NO INVOLVEMENT.
         - HAVE ALSO MONITORED ME FROM THE CORRIDOR, AND THROUGH MY DOOR.
         - BY ALL OF THE ATTORNEYS, COUNSELORS, AND STAFF OF SULLIVAN PROPERTIES, LP.
        
-        VIII.    HAVE ALSO ANNEXED AND SWORE UNDER OATH THEY SAW ME
-        https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
+  VIII.    HAVE ALSO ANNEXED AND SWORE UNDER OATH THEY SAW ME
+       
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
        
                         "... BANGING ON A RADIATOR ... "
                        
-        https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=oz2nfEu9a94Y3U5/kpIt5g==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=oz2nfEu9a94Y3U5/kpIt5g==
                        
-        IX. ALSO HAVE ANNEXED THEY "HOSTED" MY VIDEOS ON THE INTERNET --               
+IX. ALSO HAVE ANNEXED THEY "HOSTED" MY VIDEOS ON THE INTERNET --               
 
-        -- USING ONE OF THEIR OWN TENANTS AS THE VIDEOGRAPHER..\NO I DONT KNOW TO SPELL THAT I THOUGHT MICROSOFT DID THAT ANYWAYS...
-
+-- USING ONE OF THEIR OWN TENANTS AS THE VIDEOGRAPHER..\NO I DONT KNOW TO SPELL THAT I THOUGHT MICROSOFT DID THAT ANYWAYS...
+  
        
-        https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
        
 
 
@@ -91,6 +98,7 @@ RECEIVED NYSCEF:     07/21/2020
         "...REPRESENTATIVES SHOULD BE DISBARRED..."
 
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=LMUE9g_PLUS_k6vCmKgfCSJEzuQ==
+   
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
 
 
@@ -110,6 +118,7 @@ On Friday, May 6th, 2022 at 10:59 PM, BD <bondstrt@protonmail.com> wrote:
         "...REPRESENTATIVES SHOULD BE DISBARRED..."
 
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=LMUE9g_PLUS_k6vCmKgfCSJEzuQ==
+
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
 
 
