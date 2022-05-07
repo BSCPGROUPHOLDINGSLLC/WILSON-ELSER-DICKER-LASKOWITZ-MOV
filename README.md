@@ -1,6 +1,6 @@
 # WILSON-ELSER-DICKER-LASKOWITZ-MOV
 ELSER-AND-DICKER
-        LIKE I SAID.. I WARNED THEM EARLIER... I GUESS THEY REALLY ARE CRAZY.. 
+        https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
 
         HEY I'LL GIVE IT TO THEM... THEY 100% LIVE UP TO THE NAME...
 
