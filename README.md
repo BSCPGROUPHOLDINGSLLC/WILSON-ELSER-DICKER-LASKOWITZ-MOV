@@ -11,29 +11,35 @@ Wed, Jun 3, 2020, 2:20 PM        RECEIVED NYSCEF: 08/09/2020
 
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
 
-
+---
 
 
 # ZUCKER, LASKOWITZ, DICKER & SOLOMON?
 ##### HEY I'LL GIVE IT TO THEM... THEY 100% LIVE UP TO THE NAME... COMBINED ALSO.
 *** ANY OBJECTIONS, I WAS DREAMING EARLIER AS WELL.
-21 JULY 2020 , NYSCEF DOC. NO. 53            
+# 21 JULY 2020
+NYSCEF DOC. NO. 53            
              RECEIVED NYSCEF:     07/21/2020
 
-        "...REPRESENTATIVES SHOULD BE DISBARRED..."
+## "...REPRESENTATIVES SHOULD BE DISBARRED..."
 
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=LMUE9g_PLUS_k6vCmKgfCSJEzuQ==
 
 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
 
+---
+### WAITING ON SHARI LASKOWITZ TO ANNEX A TAX RECEIPT...
+IN THE INTERIM, I FOUND ANOTHER RECEIPT SHE ANNEXED.
+[DOCKET 270 -153974.pdf](https://github.com/BSCPGROUPHOLDINGSLLC/BSCPGROUPHOLDINGSLLC/files/8644448/DOCKET.270.-153974.pdf)
+
+
 
 
 --- NOW THINK ABOUT THAT WHILE I DEAL WITH THE REGULATORS. TY
 
----
 - *** not covered....26 CFR § 1.6662-5 
 - *** OR DID THEY FORGET HOW TO READ AND SEND LETTERS ALL OF A SUDDEN.
-## this was not filed - NOT IN NY SUPREME MATTER 153974/2020
+##### this was not filed - NOT IN NY SUPREME MATTER 153974/2020
 
 LIKE I SAID.. I WARNED THEM EARLIER... 
 
@@ -223,6 +229,52 @@ FROM 11-30-2021 THOUGH 03-31-2022
                                                                     12/31/2021    109.48    109.48
     __________________________________________________________________________________________
 
+ 260 	EXHIBIT(S)  - 1  (Motion #001)	Laskowitz, S.	Processed
+	6.24.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 261 	EXHIBIT(S)  - 2  (Motion #001)	Laskowitz, S.	Processed
+	6.25.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 262 	EXHIBIT(S)  - 3  (Motion #001)	Laskowitz, S.	Processed
+	6.27.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 263 	EXHIBIT(S)  - 4  (Motion #001)	Laskowitz, S.	Processed
+	6.27.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 264 	EXHIBIT(S)  - 5  (Motion #001)	Laskowitz, S.	Processed
+	6.27.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 265 	EXHIBIT(S)  - 6  (Motion #001)	Laskowitz, S.	Processed
+	6.28.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 266 	EXHIBIT(S)  - 7  (Motion #001)	Laskowitz, S.	Processed
+	6.29.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 267 	EXHIBIT(S)  - 8  (Motion #001)	Laskowitz, S.	Processed
+	6.30.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 268 	EXHIBIT(S)  - 9  (Motion #001)	Laskowitz, S.	Processed
+	Note from Defendant	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 269 	EXHIBIT(S)  - 10  (Motion #001)	Laskowitz, S.	Processed
+	7.2.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 270 	EXHIBIT(S)  - 11  (Motion #001)	Laskowitz, S.	Processed
+	7.5.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 271 	EXHIBIT(S)  - 12  (Motion #001)	Laskowitz, S.	Processed
+	7.3.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 272 	EXHIBIT(S)  - 13  (Motion #001)	Laskowitz, S.	Processed
+	7.6.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 273 	EXHIBIT(S)  - 14  (Motion #001)	Laskowitz, S.	Processed
+	7.8.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+ 274 	EXHIBIT(S)  - 15  (Motion #001)	Laskowitz, S.	Processed
+	7.9.2020 email	Filed: 08/04/2020	Confirmation Notice
+		Received: 08/04/2020	
+![image](https://user-images.githubusercontent.com/70865813/167238083-22e00dce-54d0-4982-8cb6-3ea259bb4617.png)
 
 
 
