@@ -1,6 +1,38 @@
 - 👋 I WARNED YOU --- LEAVE THE HEAVY LIFTING TO THOSE WHO KNOW WHAT THEY ARE PLAYING WITH.
-- *** not covered....26 CFR § 1.6662-5 
 
+- *** not covered....26 CFR § 1.6662-5
+
+## this was not filed - NOT IN NY SUPREME MATTER 153974/2020
+
+LIKE I SAID.. I WARNED THEM EARLIER...
+Wed, Jun 3, 2020, 2:20 PM        RECEIVED NYSCEF: 08/09/2020   
+
+        "... Why don't you just tack on the 9 billion dollars NYC is in the hole while you're at it? ..."
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
+
+
+
+
+# ZUCKER, LASKOWITZ, DICKER & SOLOMON?
+##### HEY I'LL GIVE IT TO THEM... THEY 100% LIVE UP TO THE NAME... COMBINED ALSO.
+*** ANY OBJECTIONS, I WAS DREAMING EARLIER AS WELL.
+21 JULY 2020 , NYSCEF DOC. NO. 53            
+             RECEIVED NYSCEF:     07/21/2020
+
+        "...REPRESENTATIVES SHOULD BE DISBARRED..."
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=LMUE9g_PLUS_k6vCmKgfCSJEzuQ==
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
+
+
+
+--- NOW THINK ABOUT THAT WHILE I DEAL WITH THE REGULATORS. TY
+
+---
+- *** not covered....26 CFR § 1.6662-5 
+- *** OR DID THEY FORGET HOW TO READ AND SEND LETTERS ALL OF A SUDDEN.
 ## this was not filed - NOT IN NY SUPREME MATTER 153974/2020
 
 LIKE I SAID.. I WARNED THEM EARLIER... 
