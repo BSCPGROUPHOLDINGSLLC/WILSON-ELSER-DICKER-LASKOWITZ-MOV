@@ -2,15 +2,9 @@
 ELSER-AND-DICKER
         https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
 
-        HEY I'LL GIVE IT TO THEM... THEY 100% LIVE UP TO THE NAME...
-
         Wed, Jun 3, 2020, 2:20 PM        RECEIVED NYSCEF: 08/09/2020   
 
-                "... Why don't you just tack on the 9 billion dollars NYC is in the hole while you're at it? ..."
-
             https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
-
-
             21 JULY 2020    NYSCEF DOC. NO. 53             RECEIVED NYSCEF:     07/21/2020
 
                     "...REPRESENTATIVES SHOULD BE DISBARRED..."
@@ -18,6 +12,63 @@ ELSER-AND-DICKER
                 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=LMUE9g_PLUS_k6vCmKgfCSJEzuQ==
 
                 https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
+
+
+https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/11
+
+![image](https://user-images.githubusercontent.com/70865813/167291117-656e2a28-7591-4ecf-b5e0-bf5e4d58b678.png)
+
+---
+                            STFGX
+                            Date    Close/Last    Adjusted Close
+
+                            11/10/2021    121.17    121.17
+                            11/11/2021    120.77    120.77
+                            11/12/2021    121.48    121.48
+                                                        __________________________
+                                                        11/15/2021    121.34    121.34
+                                                        11/16/2021    121.6    121.6
+                                                        11/17/2021    121.52    121.52
+                                                        11/18/2021    121.87    121.87
+                                                        11/19/2021    121.69    121.69
+                                                        11/22/2021    121.64    121.64
+                                                        11/23/2021    121.79    121.79
+                                                        11/24/2021    121.85    121.85
+                                                        11/26/2021    119.44    119.44
+                                                        11/29/2021    120.48    120.48
+                                                        11/30/2021    118.5    118.5
+                                                        12/1/2021    117.78    117.78
+                                                        12/2/2021    118.95    118.95
+                                                        12/3/2021    118.46    118.46
+                                                        12/6/2021    119.95    119.95
+                                                        12/7/2021    121.89    121.89
+                                                        12/8/2021    122.51    122.51
+                                                        12/9/2021    121.99    121.99
+                                                        12/10/2021    123.25    123.25
+                                                        12/13/2021    122.76    122.76
+                                                        12/14/2021    122.16    122.16
+                                                        12/15/2021    124.36    124.36
+                                                        12/16/2021    123.55    123.55
+                                                        12/17/2021    121.93    121.93
+
+                        INSIDER TRADING [DECEMBER 18TH, 2021]. . . . . . . . . . . . . . . . . . . . . .[0212]
+
+![image](https://user-images.githubusercontent.com/70865813/167291170-f30a3492-9be0-4b43-b958-aa909c839c60.png)
+
+
+                        --------------------------------------------------------------------------------------
+                                                                                    __________________________
+                                                                                    12/20/2021    120.72    120.72
+                                                                                    12/21/2021    106.35    106.35
+                                                                                    12/22/2021    107.39    107.39
+                                                                                    12/23/2021    108.08    108.08
+                                                                                    12/27/2021    109.52    109.52
+                                                                                    12/28/2021    109.57    109.57
+                                                                                    12/29/2021    109.82    109.82
+                                                                                    12/30/2021    109.55    109.55
+                                                                                    12/31/2021    109.48    109.48
+---
+
 
 
 
