@@ -10,13 +10,20 @@ https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=R9aac7D6DBJZ1wsiq0
 * THEY DO PRESENT THEM TO THE BANKS / FINANCIAL INDUSTRY TO OBTAIN LOANS AND LETTERS OF CREDITS...
 
 -------------------------------------------------------------------------------------------------------------------------------------
-SEQ.	PARID      	BLOCK	LOT	STREET ADDRESS		            ZIPCODE	    Market Value [MV] 	
-1	1005030006	503	6	109	SULLIVAN STREET               10012	         $5,680,000       
-2	1005030008	503	8	111	SULLIVAN STREET               10012	         $3,410,000 	  
-3	1005030009	503	9	113	SULLIVAN STREET               10012	         $4,470,000 	     
-4	1005030010	503	10	115	SULLIVAN STREET               10012	         $2,242,000 	   
-5	1005030011	503	11	117	SULLIVAN STREET               10012	         $3,242,000     
-6	1005030012	503	12	119	SULLIVAN STREET               10012	         $3,538,000 	   
+> SEQ.	PARID      	BLOCK	LOT	STREET ADDRESS		            ZIPCODE	    Market Value [MV] 	
+> 
+> 1	1005030006	503	6	109	SULLIVAN STREET               10012	         $5,680,000       
+> 
+> 2	1005030008	503	8	111	SULLIVAN STREET               10012	         $3,410,000 	  
+> 
+> 3	1005030009	503	9	113	SULLIVAN STREET               10012	         $4,470,000 	     
+> 
+> 4	1005030010	503	10	115	SULLIVAN STREET               10012	         $2,242,000 	   
+> 
+> 5	1005030011	503	11	117	SULLIVAN STREET               10012	         $3,242,000     
+> 
+> 6	1005030012	503	12	119	SULLIVAN STREET               10012	         $3,538,000 	   
+> 
 -------------------------------------------------------------------------------------------------------------------------------------													
 TOTAL SUMMARY							                                            $22,582,000 
 
