@@ -1,5 +1,10 @@
 ### STATE FARM ASSOCIATES FUNDS TRUST GROWTH FUND
 ### STATE FARM GROWTH FUND.
+
+-- THEY HOLD THOSE NOTES WITH " NO CERTIFICATE OF OCCUPANCY " 
+-- AND PRESENT THEM TO THE BANKS / FINANCIAL INDUSTRY TO GET A LOAN.
+
+
 TICKER: STFGX
 	SEC FILE NUMBER: 811-01519
 	SERIES: S000002055
@@ -19,27 +24,283 @@ ITEM C.17
 			SEC: 008-68191 
 			CRD: 000149777 [8209]
 			32,718,613.440000000000 
+THURSDAY, NOVEMBER 25, 2021. . . . . . . . . . . . . . . . . . . . . . . . . . .[0168]
+
+		FROM: 	ADMIN@HUTCHMENT.COM
+
+		SENT:	<LZUCKER@MSKYLINE.COM>, <SLASKOWITZ@INGRAMLLP.COM>, 
+
+						<SLASKOWITZ@MSKYLINE.COM>, <ASHLEY.HUMPHRIES@WILSONELSER.COM>,
+
+						<MSRBSUPPORT@MSRB.ORG>, <ALEX.KRESS@WILSONELSER.COM>,
+
+						<BBREIF@BLOOMBERG.NET>, <MHARVEY13@BLOOMBERG.NET>, 
+
+						<COLIN.BROOKS@MORGANSTANLEY.COM>, <ICEGLOBALNETWORK-INFO@ICE.COM>,
+
+						<ICEINDICES@ICE.COM>, <ADMINISTRATOR@MSKYLINE.COM>, 
+
+						<COMPLIANCE@T3TRADING.COM>.
+
+						
+
+				DOCKET 309 AND DOCKET 379 IN THE MESSAGE BODY
+
+					"ENTIRE LOT" LEASES AND RENTS TRANSFERRED TO STATE FARM
+
+					ALL SIX PROPERTIES WITH "NO CERTITFICATE OF OCCUPANCY"
+
+											IN THE YEAR 2020
+
+											AND IN THE YEAR 2022
+
+																   
+
+		https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
+
+		
+
+		RECEIVED NYSCEF: 08/09/2020
+
+																   
+
+		https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=572E8gahZUO1KFthrfiyFQ==
+
+		RECEIVED NYSCEF: 08/10/2020
+
+		
+
+Thursday, November 25, 2021. . . . . . . . . . . . . . . . . . . . . . . . . . .[0170]
+
+		FROM: 	BO.DINCER@YAHOO.COM
+
+		TO:		<SLASKOWITZ@INGRAMLLP.COM>, <SLASKOWITZ@INGRAMLLP.COM>,
+
+				<SERVICE@ETRADE.COM>, <LZUCKER@MSKYLINE.COM>, <CHAIR@SEC.GOV>,
+
+				<FIDELITY.INVESTMENTS@MAIL.FIDELITY.COM>
+
+				
+
+STATE FARM. . .  . .  . .  . .  . . . . . . . . . . . . . . . . . . . . . . . . [0171]
 
 
 
+	DOCKET 385 
+
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=K9sgXcweC7esRoSPO8MNtA==
+
+	RECEIVED NYSCEF: 08/10/2020
+
+	
+
+	FROM:		B-DINCER66@OUTLOOK.COM
+
+	SUBJECT:	RE: STATE FARM
+
+			
+
+	"... I INFORMED YOUR CLIENT OF THIS MATERIAL INFORMATION..."
+
+		
+
+	DOCKET 420
+
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=Xjn0/e1NcBADqRc_PLUS_g11P4g==
+
+
+
+JULY 21, 2020. . . . .  . .  . .  . . . . . . . . . . . . . . . . . . . . . . . [0178]
+
+--- THERE'S A CAMERA POINTED INTO MY APARTMENT AND AT MY LAPTOP, AND THEY MUST HAVE
+
+	MISSED THE SPOT WHERE I CAUGHT THEM IN THE ACT EARLIER.
+
+
+
+JULY 21, 2020. . . . .  . .  . .  . . . . . . . . . . . . . . . . . . . . . . . [0181]
+
+	--- AS STATED.
+
+	THEY WILL DO " ANYTHING " TO AVOID PROSECUTION IN THIS RESPECT.
+STATE FARM ASSOCIATES' FUNDS TRUST. . . . . . . . . . . . . . . . . . . . . . . . . . . . . [0183]
+
+[FORM N-8F] 2021-09-21
+
+" Application for Deregistration of Certain Registered Investment Companies. "
+
+https://www.sec.gov/Archives/edgar/data/0000093715/000119312521278180/d222043dn8f.htm
+
+
+
+THIS POSTHASTE MERGER IS THE ESSENCE OF GROSS NEGLIGENCE, WHICH IS UNDERSTOOD
+
+IN THE LOSSES OF ITS INVESTORS, AS THE OLD ONES HAVE NO KNOWLEDGE OF ANY MATARIALLY
+
+SUBSTANTIVE MATTERS, AND NOR TO THE NEW INVESTORS WHO BLINDLY INVESTED THEIR CAPITAL
+
+INTO THE NEW ADVISOR. CIK FILER 1519523
+
+															
+
+	Reason fund is applying to deregister. . . . . . . . . . . . . . . . . . . .[0184]		
+
+			/s/ David Moore.
+
+			Assistant Secretary
+
+			ONE STATE FARM PLAZA
+
+			BLOOMINGTON, IL, 61710						(309) 766-1908										
+
+	
+
+	Name, address and telephone number of  entity. . . . . . . . . . . . . . . .[0184]
+
+			State Farm Investment Management Corp.
+
+			One State Farm Plaza
+
+			Bloomington, Illinois 61710-0001			(309) 766-1908
+
+	
+
+	Name and address of each principal underwriter of the fund. . . . . . . . . [0185]
+
+			State Farm VP Management Corp.
+
+			One State Farm Plaza
+
+			Bloomington, Illinois 61710-0001
+
+	
+
+	Does the fund have any outstanding debts or any other liabilities . . . . . [0186]
+
+	
+
+*** GROSS NEGLIGENCE IN MANAGING THE ASSETS AND MERGER . . . . . . . . . . . . .[0187]
+
+https://www.sec.gov/Archives/edgar/data/0000093715/000119312521278180/d222043dn8f.htm
+
+
+
+******  ACCOUNTING FOR THE $250.00 MIN. INVESTED IS FURTHERANCE TO THE GROSS NEGLIGENCE.
+
+	>> ANY SOFT DOLLAR AGREEMENTS BETWEEN THE INVESTMENT ADVISER & ITS BROKERS WOULD
+
+		ONLY ADD TO WHAT IS UNDERSTOOD AND REPORTED AS FOLLOWS.
+
+		
+
+			(i)  	Legal expenses: 									$240,000
+
+			(ii) 	Accounting expenses: 			 	  		    	$  9,000
+
+			(iiI) 	Proxy Solicitation and Tabulation					$170,000
+
+					Prospectus Supplements and Regulatory Filings		$ 62,500
+
+					Directors fees										$431,000
+
+										
+---
+
+# A SOURCE OF INCOME FOR A GUARANTEE TO A BANK???
+
+DOCKET 309 AND DOCKET 379 IN THE MESSAGE BODY
+"ENTIRE LOT" LEASES AND RENTS TRANSFERRED TO STATE FARM
+
+ALL SIX PROPERTIES WITH "NO CERTITFICATE OF OCCUPANCY"
+IN THE YEAR 2020
+AND IN THE YEAR 2022
+																	   
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
+		
+RECEIVED NYSCEF: 08/09/2020
+																	   
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=572E8gahZUO1KFthrfiyFQ==
+RECEIVED NYSCEF: 08/10/2020
+			
+### [DECEMBER 18TH, 2021] NOTICE TO MORGAN STANLEY AND STATE FARM 
+		
+### AUDIT AND OPINION OF PRICE WATERHOUSE COOPERS
+###### Section 3.6 TAX AND LIEN PAYMENTS BY "STATE FARM" 
+
+
+
+THERE ARE NO CERTIFICATES OF OCCUPANCY ON FILE FOR THE ADDRESSES TRASNFERRED AND USED AS GUARANTEE TO :STATE FARM:
+-- IN ORDER TO OBTAIN A $6,000,000.00 LOAN, TRANSFERRED THE RIGHTS OF THE LEASES, RENTS, AND TAX LIABILITIES IN DOING SO.
+
+
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ze6a1KA9akRV9TGfXXJT/g==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=bVk8sIt7n3kGwHqebPg0fw==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=wTG2YD2PqXuxmoKqFiESrw==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=au8qh7Dn66hrVmJ9DX_PLUS_bdg==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=/yhElCiKJ0BGv2DF/MOn4g==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=gcMSDaFzm0ynPeXZKSHgLQ==
 
 # WILSON-ELSER-DICKER-LASKOWITZ-MOV
 ELSER-AND-DICKER
 
-
-
-        https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
-
-        Wed, Jun 3, 2020, 2:20 PM        RECEIVED NYSCEF: 08/09/2020   
-
-            https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
+Wed, Jun 3, 2020, 2:20 PM        RECEIVED NYSCEF: 08/09/2020 
+ https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
             21 JULY 2020    NYSCEF DOC. NO. 53             RECEIVED NYSCEF:     07/21/2020
 
                     "...REPRESENTATIVES SHOULD BE DISBARRED..."
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=LMUE9g_PLUS_k6vCmKgfCSJEzuQ==
 
-                https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=LMUE9g_PLUS_k6vCmKgfCSJEzuQ==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
 
-                https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=TxAa7cNVIHKtnJU/ni/zvg==
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=PWFQc/WFihoyIKwEunaalQ==
+
+          
+
+           
+#### CERTITIICATES OF OCCUPANCY FOR THE RENTS AND LEASES TRANSFERRED TO STATE FARM
+
+https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077252
+														   
+NYSCEF DOC. NO. 230 																					 08-04-2020
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=JjKiWNUTBeipcESQfFiwVQ==
+	
+NYSCEF DOC. NO. 388 																					 08-10-2020
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ZOCFS3HH2UeHQe8j2tXJoQ==
+
+																													   		
+113 REAR SULLIVAN STREET, BIN CODE 1077254
+https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077254
+		
+																													   
+115 REAR SULLIVAN STREET, BIN CODE 1077256
+https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077256
+	
+																													   	
+117 SULLIVAN STREET, BIN CODE 1007779
+https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1007779
+
+		
+BIS CERTIFICATES OF OCCUPANCY
+https://a810-dobnow.nyc.gov/publish/index.html#!/search
+		
+																													   
+111 REAR SULLIVAN STREET, BIN CODE 1077252
+- NO CERTIFICATE OF OCCUPANCY 									03-03-2022
+- NO CERTIFICATE OF OCCUPANCY 									08-10-2020
+	
+NYSCEF DOC. NO. 388 										08-10-2020
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ZOCFS3HH2UeHQe8j2tXJoQ==
+                
+
+               
 
 
 https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/11
@@ -5361,42 +5622,7 @@ https://a836-pts-access.nyc.gov/care/Datalets/PrintDatalet.aspx?pin=1005030011&g
 >>>[2020-2021:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20200606&stmtType=SOA)
 
 
-CERTITIICATES OF OCCUPANCY FOR THE RENTS AND LEASES TRANSFERRED TO STATE FARM. . . . . . . . . . . . . . . . . . . . . . [0029]
 
-																													   
-	111 REAR SULLIVAN STREET, BIN CODE 1077252. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .[0029]
-													    THERE ARE NO CERTIFICATES OF OCCUPANCY ON FILE FOR THIS ADDRESS
-														
-	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077252
-														   
-	NYSCEF DOC. NO. 230 																					 08-04-2020
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=JjKiWNUTBeipcESQfFiwVQ==
-	
-	NYSCEF DOC. NO. 388 																					 08-10-2020
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ZOCFS3HH2UeHQe8j2tXJoQ==
-
-																													   		
-	113 REAR SULLIVAN STREET, BIN CODE 1077254. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .[0030]
-	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077254
-		
-																													   
-	115 REAR SULLIVAN STREET, BIN CODE 1077256. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .[0031]
-	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077256
-	
-																													   	
-	117 SULLIVAN STREET, BIN CODE 1007779. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . [0034]
-	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1007779
-		
-	BIS CERTIFICATES OF OCCUPANCY. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . [0037]
-	https://a810-dobnow.nyc.gov/publish/index.html#!/search
-		
-																													   
-	111 REAR SULLIVAN STREET, BIN CODE 1077252 . . . . . .. . . . . . . . . . . . . . . . . . . . . . . . . . . .[0039]
-	- NO CERTIFICATE OF OCCUPANCY 															03-03-2022
-	- NO CERTIFICATE OF OCCUPANCY 															08-10-2020
-	
-	NYSCEF DOC. NO. 388 																	08-10-2020
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ZOCFS3HH2UeHQe8j2tXJoQ==
 		
 	
 	113 REAR SULLIVAN STREET, BIN CODE 1077254. . . . . . .. . . . . . . . . . . . . . . . . . . . . . . . . . . [0040]
@@ -5407,40 +5633,7 @@ CERTITIICATES OF OCCUPANCY FOR THE RENTS AND LEASES TRANSFERRED TO STATE FARM. .
 	- NO CERTIFICATE OF OCCUPANCY 															03-03-2022
 	- NO CERTIFICATE OF OCCUPANCY 															08-10-2020
 	
-A SOURCE OF INCOME FOR A GUARANTEE TO A BANK???
 
-					DOCKET 309 AND DOCKET 379 IN THE MESSAGE BODY
-						"ENTIRE LOT" LEASES AND RENTS TRANSFERRED TO STATE FARM
-						ALL SIX PROPERTIES WITH "NO CERTITFICATE OF OCCUPANCY"
-												IN THE YEAR 2020
-												AND IN THE YEAR 2022
-																	   
-			https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
-			
-			RECEIVED NYSCEF: 08/09/2020
-																	   
-			https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=572E8gahZUO1KFthrfiyFQ==
-			RECEIVED NYSCEF: 08/10/2020
-			
-		[DECEMBER 18TH, 2021] NOTICE TO MORGAN STANLEY AND STATE FARM . . . .[0212]
-		
-	---  AUDIT AND OPINION OF PRICE WATERHOUSE COOPERS. . . . . . . . . . . .[0213]
-		Section 3.6 TAX AND LIEN PAYMENTS BY "STATE FARM" . . . . . . . . . .[0214]
-	
-
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
-	
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ze6a1KA9akRV9TGfXXJT/g==
-	
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=bVk8sIt7n3kGwHqebPg0fw==
-	
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=wTG2YD2PqXuxmoKqFiESrw==
-	
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=au8qh7Dn66hrVmJ9DX_PLUS_bdg==
-	
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=/yhElCiKJ0BGv2DF/MOn4g==
-	
-	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=gcMSDaFzm0ynPeXZKSHgLQ==
 	
 			
 
