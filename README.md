@@ -2,8 +2,68 @@
 ### STATE FARM GROWTH FUND.
 
 -- THEY HOLD THOSE NOTES WITH " NO CERTIFICATE OF OCCUPANCY " 
--- AND PRESENT THEM TO THE BANKS / FINANCIAL INDUSTRY TO GET A LOAN.
 
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=R9aac7D6DBJZ1wsiq0b38A==
+^^ unlawful custody of SECURITY DEPOSITS:  JP MORGAN CHASE.
+
+* THEY DO PRESENT THEM TO THE BANKS / FINANCIAL INDUSTRY TO OBTAIN LOANS AND LETTERS OF CREDITS...
+
+-------------------------------------------------------------------------------------------------------------------------------------
+SEQ.	PARID      	BLOCK	LOT	STREET ADDRESS		            ZIPCODE	    Market Value [MV] 	
+1	1005030006	503	6	109	SULLIVAN STREET               10012	         $5,680,000       
+2	1005030008	503	8	111	SULLIVAN STREET               10012	         $3,410,000 	  
+3	1005030009	503	9	113	SULLIVAN STREET               10012	         $4,470,000 	     
+4	1005030010	503	10	115	SULLIVAN STREET               10012	         $2,242,000 	   
+5	1005030011	503	11	117	SULLIVAN STREET               10012	         $3,242,000     
+6	1005030012	503	12	119	SULLIVAN STREET               10012	         $3,538,000 	   
+-------------------------------------------------------------------------------------------------------------------------------------													
+TOTAL SUMMARY							                                            $22,582,000 
+
+-------------------------------------------------------------------------------------------------------------------------------------
+  Log Message:
+  -----------
+  https://www.tdi.texas.gov/commissioner/disciplinary-orders/documents/20153854.pdf
+-------------------------------------------------------------------------------------------------------------------------------------
+     
+### tax recceipts
+https://github.com/users/BSCPGROUPHOLDINGSLLC/projects/1#column-18309490
+* YoY represents double digit returns for the prior ten years
+______________________________________________________________________________________
+
+https://a836-acris.nyc.gov/DS/DocumentSearch/DocumentImageView?doc_id=2020052000291003
+______________________________________________________________________________________
+
+https://a836-acris.nyc.gov/DS/DocumentSearch/DocumentImageView?doc_id=2020052000291002
+
+______________________________________________________________________________________
+
+
+
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ze6a1KA9akRV9TGfXXJT/g==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=bVk8sIt7n3kGwHqebPg0fw==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=wTG2YD2PqXuxmoKqFiESrw==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=au8qh7Dn66hrVmJ9DX_PLUS_bdg==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=/yhElCiKJ0BGv2DF/MOn4g==
+	
+https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=gcMSDaFzm0ynPeXZKSHgLQ==
+	
+			
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20190201&stmtType=SOA)
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20181116&stmtType=SOA)
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20180824&stmtType=SOA)
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20180601&stmtType=SOA)
+		 
 
 TICKER: STFGX
 	SEC FILE NUMBER: 811-01519
@@ -743,7 +803,7 @@ https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/pull/11
 
                 Has the FDIC checked on Century 21 downtown at the Register booth... to see if that is accurate?
                            
-
+---
 
 
 
