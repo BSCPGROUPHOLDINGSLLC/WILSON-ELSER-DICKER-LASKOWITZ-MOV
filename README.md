@@ -5157,3 +5157,290 @@ https://github.com/BSCPGROUPHOLDINGSLLC/WIL…
 
 
 ![image](https://user-images.githubusercontent.com/70865813/167268583-fac93169-9948-478f-9ba1-9105772d201c.png)
+
+
+---
+ABOUT YOUR PROPERTY TAXES ON 117 SULLIVAN STREET
+- TRANSFERRED TO: STATE FARM
+
+
+https://a836-pts-access.nyc.gov/care/Datalets/PrintDatalet.aspx?pin=1005030011&gsp=ASMT_FIN_2021&taxyear=2022&jur=65&ownseq=0&card=1&roll=RP_NY&State=1&item=1&items=-1&all=undefined&ranks=Datalet
+
+
+																							117 SULLIVAN STREET
+																							NEW YORK, NY, 10012
+<br>
+
+	
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+  <tr>
+    <td style="text-align: left;"><strong>2010-01-15</strong></td>
+    <td style="text-align: right;"><strong>0005</strong></td>
+	</tr>
+</table>
+<br>
+
+>>>[2010-2011:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20100611&stmtType=SOA)
+
+>>>[2010-2011:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20100827&stmtType=SOA)
+
+>>>[2010-2011:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20101119&stmtType=SOA)
+
+>>>[2010-2011:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20110218&stmtType=SOA)
+
+	
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+  <tr>
+    <td style="text-align: left;"><strong>2011-01-15</strong></td>
+    <td style="text-align: right;"><strong>0005</strong></td>
+	</tr>
+</table>
+<br>
+
+>>>[2011-2012:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20110610&stmtType=SOA)
+
+>>>[2011-2012:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20110826&stmtType=SOA)
+
+>>>[2011-2012:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20111118&stmtType=SOA)
+
+>>>[2011-2012:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20120224&stmtType=SOA)
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2012-01-15</strong></td>
+    <td style="text-align: right;"><strong>0007</strong></td>
+</table>
+<br>
+
+>>>[2012-2013:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20130222&stmtType=SOA)
+
+>>>[2012-2013:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20121130&stmtType=SOA)
+
+>>>[2012-2013:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20120817&stmtType=SOA)
+
+>>>[2012-2013:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20120608&stmtType=SOA)
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2013-01-15</strong></td>
+    <td style="text-align: right;"><strong>0009</strong></td>
+  </tr>
+</table>
+<br>
+
+>>>[2013-2014:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC ](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20130607&stmtType=SOA)
+
+>>>[2013-2014:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC ](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20130823&stmtType=SOA)
+
+>>>[2013-2014:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC ](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20131122&stmtType=SOA)
+
+>>>[2013-2014:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC ](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20140221&stmtType=SOA)
+ 
+ 
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2014-01-15</strong></td>
+    <td style="text-align: right;"><strong>0011</strong></td>
+  </tr>
+</table>
+<br>
+
+
+>>>[2014-2015:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20150220&stmtType=SOA)
+
+>>>[2014-2015:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20141121&stmtType=SOA)
+
+>>>[2014-2015:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20140822&stmtType=SOA)
+
+>>>[2014-2015:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20140606&stmtType=SOA)
+
+
+
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2015-01-15</strong></td>
+    <td style="text-align: right;"><strong>0013</strong></td>
+  </tr>
+</table>
+<br>
+
+
+>>>[2015-2016:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20160219&stmtType=SOA)
+
+>>>[2015-2016:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20151120&stmtType=SOA)
+
+>>>[2015-2016:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20150821&stmtType=SOA)
+
+>>>[2015-2016:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20150605&stmtType=SOA)
+
+
+
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2016-01-15</strong></td>
+    <td style="text-align: right;"><strong>0015</strong></td>
+  </tr>
+</table>
+<br>
+
+
+>>>[2016-2017&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20170224&stmtType=SOA)
+
+>>>[2016-2017&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20161118&stmtType=SOA)
+
+>>>[2016-2017&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20160826&stmtType=SOA)
+
+>>>[2016-2017&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20160603&stmtType=SOA)
+
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2017-01-15</strong></td>
+    <td style="text-align: right;"><strong>0017</strong></td>
+ </tr>
+</table>
+<br>
+
+>>>[2017-2018:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20180223&stmtType=SOA)
+
+>>>[2017-2018:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20171117&stmtType=SOA)
+
+>>>[2017-2018:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20170825&stmtType=SOA)
+
+>>>[2017-2018:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20170602&stmtType=SOA)
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2018-01-15</strong></td>
+    <td style="text-align: right;"><strong>0019</strong></td>
+ </tr>
+</table>
+<br>
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20190201&stmtType=SOA)
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20181116&stmtType=SOA)
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20180824&stmtType=SOA)
+
+>>>[2018-2019:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-mspuvw-dofptsz.nyc.gov/PTSCM/StatementSearch?bbl=1005030011&stmtDate=20180601&stmtType=SOA)
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2019-01-15</strong></td>
+    <td style="text-align: right;"><strong>0021</strong></td>
+ </tr>
+</table>
+<br>
+
+>>>[2019-2020:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20200222&stmtType=SOA)
+
+>>>[2019-2020:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20191119&stmtType=SOA)
+
+>>>[2019-2020:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20190829&stmtType=SOA)
+
+>>>[2019-2020:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20190605&stmtType=SOA)
+
+
+<table style="width:90%; border: 0px; background-color: #96D4D4; height: 5px; margin-left: 30px;">
+    <tr style=" padding-top: 0px;">
+    <td style="text-align: left;"><strong>2020-01-15</strong></td>
+    <td style="text-align: right;"><strong>0025</strong></td>
+ </tr>
+</table>
+<br>
+
+>>>[2020-2021:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q4: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20210227&stmtType=SOA)
+
+>>>[2020-2021:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q3: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20201121&stmtType=SOA)
+
+>>>[2020-2021:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q2: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20200829&stmtType=SOA)
+
+>>>[2020-2021:&nbsp;&nbsp;&nbsp;&nbsp;Tax Bill&nbsp;&nbsp;&nbsp;&nbsp;Q1: NYC](https://a836-edms.nyc.gov/dctm-rest/repositories/dofedmspts/StatementSearch?bbl=1005030011&stmtDate=20200606&stmtType=SOA)
+
+
+CERTITIICATES OF OCCUPANCY FOR THE RENTS AND LEASES TRANSFERRED TO STATE FARM. . . . . . . . . . . . . . . . . . . . . . [0029]
+
+																													   
+	111 REAR SULLIVAN STREET, BIN CODE 1077252. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .[0029]
+													    THERE ARE NO CERTIFICATES OF OCCUPANCY ON FILE FOR THIS ADDRESS
+														
+	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077252
+														   
+	NYSCEF DOC. NO. 230 																					 08-04-2020
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=JjKiWNUTBeipcESQfFiwVQ==
+	
+	NYSCEF DOC. NO. 388 																					 08-10-2020
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ZOCFS3HH2UeHQe8j2tXJoQ==
+
+																													   		
+	113 REAR SULLIVAN STREET, BIN CODE 1077254. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .[0030]
+	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077254
+		
+																													   
+	115 REAR SULLIVAN STREET, BIN CODE 1077256. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .[0031]
+	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1077256
+	
+																													   	
+	117 SULLIVAN STREET, BIN CODE 1007779. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . [0034]
+	https://a810-bisweb.nyc.gov/bisweb/cosbylocationservlet?requestid=3&allbin=1007779
+		
+	BIS CERTIFICATES OF OCCUPANCY. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . [0037]
+	https://a810-dobnow.nyc.gov/publish/index.html#!/search
+		
+																													   
+	111 REAR SULLIVAN STREET, BIN CODE 1077252 . . . . . .. . . . . . . . . . . . . . . . . . . . . . . . . . . .[0039]
+	- NO CERTIFICATE OF OCCUPANCY 															03-03-2022
+	- NO CERTIFICATE OF OCCUPANCY 															08-10-2020
+	
+	NYSCEF DOC. NO. 388 																	08-10-2020
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ZOCFS3HH2UeHQe8j2tXJoQ==
+		
+	
+	113 REAR SULLIVAN STREET, BIN CODE 1077254. . . . . . .. . . . . . . . . . . . . . . . . . . . . . . . . . . [0040]
+	- NO CERTIFICATE OF OCCUPANCY 															03-03-2022
+	- NO CERTIFICATE OF OCCUPANCY 															08-10-2020 
+		
+	115 REAR SULLIVAN STREET, BIN CODE 1077254. . . . . . .. . . . . . . . . . . . . . . . . . . . . . . . . . . [0041]	
+	- NO CERTIFICATE OF OCCUPANCY 															03-03-2022
+	- NO CERTIFICATE OF OCCUPANCY 															08-10-2020
+	
+A SOURCE OF INCOME FOR A GUARANTEE TO A BANK???
+
+					DOCKET 309 AND DOCKET 379 IN THE MESSAGE BODY
+						"ENTIRE LOT" LEASES AND RENTS TRANSFERRED TO STATE FARM
+						ALL SIX PROPERTIES WITH "NO CERTITFICATE OF OCCUPANCY"
+												IN THE YEAR 2020
+												AND IN THE YEAR 2022
+																	   
+			https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
+			
+			RECEIVED NYSCEF: 08/09/2020
+																	   
+			https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=572E8gahZUO1KFthrfiyFQ==
+			RECEIVED NYSCEF: 08/10/2020
+			
+		[DECEMBER 18TH, 2021] NOTICE TO MORGAN STANLEY AND STATE FARM . . . .[0212]
+		
+	---  AUDIT AND OPINION OF PRICE WATERHOUSE COOPERS. . . . . . . . . . . .[0213]
+		Section 3.6 TAX AND LIEN PAYMENTS BY "STATE FARM" . . . . . . . . . .[0214]
+	
+
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=19MVPFXy0G0QvnmRLGpYIQ==
+	
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=ze6a1KA9akRV9TGfXXJT/g==
+	
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=bVk8sIt7n3kGwHqebPg0fw==
+	
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=wTG2YD2PqXuxmoKqFiESrw==
+	
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=au8qh7Dn66hrVmJ9DX_PLUS_bdg==
+	
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=/yhElCiKJ0BGv2DF/MOn4g==
+	
+	https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=gcMSDaFzm0ynPeXZKSHgLQ==
+	
+			
+
